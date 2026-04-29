@@ -1,1 +1,0 @@
-# dallnet-hataya2026
